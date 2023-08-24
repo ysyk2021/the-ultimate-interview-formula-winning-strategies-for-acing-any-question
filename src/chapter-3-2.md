@@ -1,5 +1,3 @@
-Understanding Your Unique Value Proposition
-====================================================================================
 
 Crafting a strong personal brand requires understanding your unique value proposition -- what makes you different from other candidates. In this chapter, we'll discuss strategies for identifying and articulating your unique value proposition.
 

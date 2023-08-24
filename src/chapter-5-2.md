@@ -1,5 +1,3 @@
-Questions About Your Strengths and Weaknesses
-==================================================================================================
 
 Questions about your strengths and weaknesses are common in job interviews. In this chapter, we'll discuss strategies for preparing effective responses to these types of questions.
 

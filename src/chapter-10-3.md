@@ -1,5 +1,3 @@
-Strategies for Negotiating Benefits and Perks
-==========================================================================================
 
 Negotiating fair compensation and benefits is essential for ensuring that you are fairly compensated for your skills and experience. In this chapter, we'll discuss strategies for negotiating benefits and perks.
 

@@ -1,5 +1,3 @@
-Group Interviews
-=======================================================================
 
 Group interviews involve multiple candidates being interviewed at the same time, either individually or as a group. Navigating these special interview circumstances requires different strategies and considerations than one-on-one interviews. In this chapter, we'll discuss strategies for navigating group interviews.
 

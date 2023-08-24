@@ -1,5 +1,3 @@
-What to expect during the interview process
-===========================================================================================
 
 Understanding the interview process is essential for a successful job interview. In this chapter, we'll discuss what to expect during the interview process.
 

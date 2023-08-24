@@ -1,5 +1,3 @@
-Chapter 5: Preparing for Common Interview Questions
-===================================================
 
 Preparing for common interview questions is essential for demonstrating your qualifications and suitability for the position. In this chapter, we'll discuss strategies for preparing for commonly asked questions about your background and experience, questions about your strengths and weaknesses, and behavioral interview questions.
 

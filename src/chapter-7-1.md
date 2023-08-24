@@ -1,5 +1,3 @@
-Techniques for effective communication and listening
-===============================================================================================================
 
 Effective communication is essential for a successful job interview. In this chapter, we'll discuss techniques for effective communication and listening during the interview.
 

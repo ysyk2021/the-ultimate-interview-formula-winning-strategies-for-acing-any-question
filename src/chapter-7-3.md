@@ -1,5 +1,3 @@
-Nonverbal Communication Tips
-=======================================================================================
 
 Nonverbal communication plays a crucial role in how we come across in an interview. It can convey confidence, engagement, and professionalism, or it can communicate nervousness, disinterest, and unpreparedness. In this chapter, we'll discuss nonverbal communication tips to help you communicate effectively during the interview.
 

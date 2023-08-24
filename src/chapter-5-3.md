@@ -1,5 +1,3 @@
-Behavioral Interview Questions
-===================================================================================
 
 Behavioral interview questions are a common type of question used by employers to assess a candidate's past behavior and performance in certain situations. In this chapter, we'll discuss strategies for preparing for behavioral interview questions.
 

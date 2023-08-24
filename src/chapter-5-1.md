@@ -1,5 +1,3 @@
-Commonly Asked Questions About Your Background and Experience
-==================================================================================================================
 
 Preparing for common interview questions is essential for demonstrating your qualifications, experience, and suitability for the position. In this chapter, we'll discuss strategies for preparing for commonly asked questions about your background and experience.
 

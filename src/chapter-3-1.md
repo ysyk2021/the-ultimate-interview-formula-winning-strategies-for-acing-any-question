@@ -1,5 +1,3 @@
-Developing a strong personal brand
-===========================================================================
 
 Developing a strong personal brand is essential for a successful job interview. In this chapter, we'll discuss how to craft your personal brand and stand out from other candidates.
 

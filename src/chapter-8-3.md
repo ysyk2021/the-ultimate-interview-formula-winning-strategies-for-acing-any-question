@@ -1,5 +1,3 @@
-What to Do If You Don't Get the Job
-================================================================================
 
 If you don't get the job after an interview, it's natural to feel disappointed and frustrated. However, it's important to remember that rejection is a normal part of the job search process. In this chapter, we'll discuss strategies for following up after the interview, even if you don't get the job.
 

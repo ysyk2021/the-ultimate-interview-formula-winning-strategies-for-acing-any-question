@@ -1,5 +1,3 @@
-Understanding the salary negotiation process
-=========================================================================================
 
 Understanding the salary negotiation process is key to successfully negotiating fair compensation for a job offer. In this chapter, we'll discuss the steps involved in the salary negotiation process.
 

@@ -1,5 +1,3 @@
-Conducting Research About the Company
-======================================================================================
 
 Conducting thorough research about the company and position before an interview is essential for demonstrating your interest, knowledge, and suitability for the role. In this chapter, we'll discuss strategies for conducting research about the company.
 

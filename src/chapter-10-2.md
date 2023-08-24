@@ -1,5 +1,3 @@
-Tips for researching and determining fair compensation
-===================================================================================================
 
 Researching and determining fair compensation is a critical step in negotiating a salary and benefits package that reflects your value and meets your needs. In this chapter, we'll discuss tips for researching and determining fair compensation.
 

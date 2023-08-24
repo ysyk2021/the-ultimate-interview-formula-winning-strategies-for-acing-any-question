@@ -1,5 +1,3 @@
-Identifying the Company Culture and Values
-===========================================================================================
 
 Identifying the company culture and values is essential for demonstrating your fit and alignment with the organization. In this chapter, we'll discuss strategies for identifying the company culture and values.
 

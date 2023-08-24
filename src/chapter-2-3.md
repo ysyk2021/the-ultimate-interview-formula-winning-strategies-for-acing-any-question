@@ -1,5 +1,3 @@
-How to prepare for each stage of the interview process
-======================================================================================================
 
 Preparing for each stage of the interview process is essential for a successful job interview. In this chapter, we'll discuss how to prepare for each stage of the interview process.
 

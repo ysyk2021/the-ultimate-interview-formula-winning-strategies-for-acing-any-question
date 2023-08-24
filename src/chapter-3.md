@@ -1,5 +1,3 @@
-Chapter 3: Crafting Your Personal Brand
-=======================================
 
 Crafting a strong personal brand is essential for standing out in the job market and demonstrating your unique value to potential employers. In this chapter, we'll discuss strategies for developing a strong personal brand, understanding your unique value proposition, and creating a compelling elevator pitch.
 

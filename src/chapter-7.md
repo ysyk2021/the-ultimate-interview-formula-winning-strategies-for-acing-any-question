@@ -1,5 +1,3 @@
-Chapter 7: Communicating Effectively During the Interview
-=========================================================
 
 Effective communication is essential for demonstrating your qualifications and suitability for the position. In this chapter, we'll discuss techniques for effective communication and listening, building rapport and connection with the interviewer, and nonverbal communication tips.
 

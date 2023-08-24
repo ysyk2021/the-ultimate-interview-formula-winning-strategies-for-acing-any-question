@@ -1,5 +1,3 @@
-Strategies for Staying Top-of-Mind with Hiring Managers
-====================================================================================================
 
 Staying top-of-mind with hiring managers after the interview is essential for maximizing your chances of landing the job. In this chapter, we'll discuss strategies for staying top-of-mind with hiring managers.
 

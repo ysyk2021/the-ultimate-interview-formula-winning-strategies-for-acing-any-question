@@ -1,5 +1,3 @@
-Chapter 8: Following Up After the Interview
-===========================================
 
 Following up after a job interview is a crucial part of the job search process. In this chapter, we'll discuss strategies for sending thank-you notes and follow-up emails, staying top-of-mind with hiring managers, and what to do if you don't get the job.
 

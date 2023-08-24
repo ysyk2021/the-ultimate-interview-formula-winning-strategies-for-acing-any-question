@@ -1,5 +1,3 @@
-The importance of preparation for job interviews
-=========================================================================
 
 Job interviews can be nerve-wracking experiences that determine whether or not you get the job. Preparation is key to increasing your chances of success and standing out from other candidates. In this chapter, we'll discuss the importance of preparation for job interviews.
 

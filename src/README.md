@@ -1,4 +1,4 @@
-# Introduction
+
 
 The interview process can be a daunting experience for many job seekers. The thought of having to answer tough questions and make a great impression on a potential employer can be overwhelming. However, with the right strategies and preparation, acing any interview is possible.
 

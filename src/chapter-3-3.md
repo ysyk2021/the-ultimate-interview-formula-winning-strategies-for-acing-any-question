@@ -1,5 +1,3 @@
-Creating a Compelling Elevator Pitch
-=============================================================================
 
 Crafting a strong personal brand is essential for standing out in the job market. One key component of your personal brand is your elevator pitch -- a short, compelling statement that summarizes who you are, what you do, and what makes you unique. In this chapter, we'll discuss strategies for creating a compelling elevator pitch.
 

@@ -1,5 +1,3 @@
-Chapter 10: Negotiating Salary and Benefits
-===========================================
 
 Negotiating salary and benefits can be a challenging but essential part of the job offer process. In this chapter, we'll discuss strategies for negotiating fair compensation and benefits.
 

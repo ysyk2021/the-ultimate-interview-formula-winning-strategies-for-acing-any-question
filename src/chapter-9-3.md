@@ -1,5 +1,3 @@
-Second-Round and Final Interviews
-========================================================================================
 
 Second-round and final interviews are often more in-depth than initial interviews, and may involve different interviewers or a different format. Navigating these special interview circumstances requires additional preparation and strategies. In this chapter, we'll discuss strategies for navigating second-round and final interviews.
 
