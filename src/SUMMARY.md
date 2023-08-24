@@ -1,6 +1,6 @@
 # Summary
 
-- [Introduction](README.md)
+- [Chapter 1: Introduction](README.md)
   - [The importance of preparation for job interviews](chapter-1-1.md)
 - [Chapter 2: Understanding the Interview Process](chapter-2.md)
   - [Different types of job interviews](chapter-2-1.md)
