@@ -1,5 +1,4 @@
-Chapter: Different Types of Job Interviews
-==========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Introduction
 ------------
